@@ -4,7 +4,7 @@
 - 📫 How to reach me **sendtoramsundar@gmail.com**
 - My portfolio **https://ramr3r.github.io/**
 
-- 📄 Know about me check my Resume :  [My Resume]([https://drive.google.com/file/d/1EJ0qryBt4ldMTYE4i4rqBxaP5Ciw-H4o/view?usp=sharing](https://drive.google.com/file/d/1vWjhCpdNNpW1IHd9epRikS5D61vI_vv4/view?usp=drive_link))
+- 📄 Know about me check my Resume :  [My Resume](https://drive.google.com/file/d/1vWjhCpdNNpW1IHd9epRikS5D61vI_vv4/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
